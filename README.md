@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vasudhavann
+- 👀 I’m interested in Finance & Data Visualisation
+- 🌱 I’m currently learning Advanced Power BI & Derivative Market
+- 💞️ I’m looking to start my carrer as Financial Analyst
+- ⚡ Fun fact: Lets talk about Formula One & Anime.
